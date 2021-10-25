@@ -46,6 +46,8 @@ _CORREA GARCIA ANA MARIA_
 [¿Pasarías el test de ignorancia?](https://www.bbc.com/mundo/noticias-39625345)
 ![](https://ichef.bbci.co.uk/news/800/cpsprodpb/A1ED/production/_95735414_roschimp.jpg)
 ___
+_ ## Contrasenas para mas de dos personas
+_MARIANA BOTERO_
 
 - ## Pasión de Multitudes
 _CARDONA RESTREPO VALENTINA_
